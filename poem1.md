@@ -12,3 +12,6 @@ She wants them to gulp up the world, spit out solid degrees, responsible grandch
 They will be better than mangoes, my brothers.
 Though I have trouble imagining what that could be.
 Flying mangoes, perhaps. Flying mango-tomato hybrids. Beautiful sons.
+And I hope to be there as a still tree of mango waiting for the spring to come and paint me green with
+new hopes and excitement once again to my pale life which was not worth living, yet I was bearing it 
+as a strong as a powerful wind which can anytime turn into tsunami.
